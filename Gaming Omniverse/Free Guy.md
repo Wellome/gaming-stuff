@@ -1,0 +1,6 @@
+[[Multiverses/Marvel/Marvel|Marvel]]
+[[Star Wars]]
+[[Fortnite]]
+[[Half-Life 2]]
+[[Portal]]
+[[Mega Man]]
